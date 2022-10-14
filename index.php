@@ -1,5 +1,3 @@
-
- 
  <!DOCTYPE html>
 <html>
 <title>Halloween Couple Shirts - Best Halloween Couple T-Shirts 2022 | StirTshirt</title>
